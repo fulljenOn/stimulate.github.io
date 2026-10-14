@@ -1,1 +1,0 @@
-# stimulate.github.io
